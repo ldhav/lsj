@@ -1,14 +1,14 @@
-:sparkles::sparkles:老司机导航-最新导航地址发布 8.7更新:sparkles::sparkles:
+:sparkles::sparkles:老司机导航-最新地址发布 更新8.7:sparkles::sparkles:
 ==
-:heart: :point_right: 【绿导航最新地址】 ：[https://xd.smxd.one/shenmi](https://xd.smxd.one/shenmi)
+:heart: :point_right: 【老司机最新地址】 ：[https://xd.smxd.one/shenmi](https://xd.smxd.one/shenmi)
 ------
-:heart: :point_right: 【绿导航最新地址】 ：[https://xd.smxd10.cc/shenmi](https://xd.smxd10.cc/shenmi)
+:heart: :point_right: 【老司机最新地址】 ：[https://xd.smxd10.cc/shenmi](https://xd.smxd10.cc/shenmi)
 ------
-:heart: :point_right: 【绿导航最新地址】 ：[https://xd.smxd10.xyz/shenmi](https://xd.smxd10.xyz/shenmi)
+:heart: :point_right: 【老司机最新地址】 ：[https://xd.smxd10.xyz/shenmi](https://xd.smxd10.xyz/shenmi)
 ------
-:heart: :point_right: 【绿导航最新地址】 ：[https://xd.smxd.xyz/shenmi](https://xd.smxd.xyz/shenmi)
+:heart: :point_right: 【老司机最新地址】 ：[https://xd.smxd.xyz/shenmi](https://xd.smxd.xyz/shenmi)
 ------
-:heart: :point_right: 【绿导航永久地址】 ：[https://shenmidao.cc/shenmi](https://shenmidao.cc/shenmi)
+:heart: :point_right: 【老司机永久地址】 ：[https://shenmidao.cc/shenmi](https://shenmidao.cc/shenmi)
 ------
 :sparkles:重要提醒:sparkles:收藏本页面，避免迷路！
 ==
